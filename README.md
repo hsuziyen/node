@@ -1,3 +1,0 @@
-# contury
-# tourism
-# tourism
